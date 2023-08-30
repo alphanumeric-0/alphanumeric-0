@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @alphanumeric-0
+- 👀 I’m interested in making useless ass programs! (and data management, but can't tell nothing about that 🤫
+- 🌱 I’m currently learning HTML.
+- 💞️ I’m looking to collaborate on something that I think is cool too. 
